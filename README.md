@@ -3,3 +3,5 @@
 
 ## Integrante(s):
 1. José Daniel Méndez Mateo
+
+Daniel, sinceramente esto está siendo más complicado de lo que imagine.
