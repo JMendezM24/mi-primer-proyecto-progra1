@@ -6,4 +6,4 @@
 
 Daniel, sinceramente esto está siendo más complicado de lo que imagine.
 
-Pero se hacelo que se puede para avanzar poco a poco.
+Pero se hace lo que se puede para avanzar poco a poco.
